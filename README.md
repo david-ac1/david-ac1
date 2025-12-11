@@ -1,5 +1,5 @@
 # 💫 About Me:
-Tech-Enthusiast and Excited about all the great things happening on the African continent!
+Digital Health developer and Educator
 
 
 ## 🌐 Socials:
